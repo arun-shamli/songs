@@ -1,5 +1,8 @@
 
-- ham to tere ashik hain sadio purane 
+### These two can go together
+- jaha me jati hu 
+- ham to tere ashik hain sadio purane
+___
 - na kajre kee dhar na koi kiya singar
 - chup gaye saare najare
 - kya khub lagti ho
@@ -15,7 +18,6 @@
 - chand see mahbuba ho 
 - koi ladki hai
 - ye ladki hai diwani 
-- jaha me jati hu 
 - ham tum pe marne wale hai koi gair nahi
 - tum dil ki dhadkan me
 - dil ne ye kaha hai dil se
