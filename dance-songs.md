@@ -29,3 +29,6 @@ ___
 - [Ye ladki hai allah ](https://www.youtube.com/watch?v=7_uGOJko--o)
 - mai uthe dil chod aaya
 - mai jat yamla
+- jhanjharia uski khanak gayi
+- kya ada kya jalwe tere paro
+- do tanha mile tanhai miti
