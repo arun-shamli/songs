@@ -1,0 +1,7 @@
+- https://www.youtube.com/watch?v=_UG_ELNaMyU
+- https://www.youtube.com/watch?v=Sn-4rkC4m6c&t=41s
+- https://www.youtube.com/watch?v=XZYTb4LP-iM
+- https://www.youtube.com/watch?v=Fqh8PQT6j0I
+- https://www.youtube.com/watch?v=mDFa-UU7v5s
+- https://www.youtube.com/watch?v=ukIDqnZKrkU
+- 
