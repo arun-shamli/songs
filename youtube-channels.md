@@ -6,6 +6,7 @@ dance steps for learning haryanavi songs
 - [Devangini Rathore](https://www.youtube.com/@DevanginiRathore01)
     very good dance collections
 - [The Dance Studio](https://www.youtube.com/@USTheDanceStudio/videos)
+- [Step 2 step dance](https://www.youtube.com/@step2stepdancestudio)
 
 
 
