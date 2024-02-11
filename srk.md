@@ -1,0 +1,14 @@
+- kab tak chup baithe ab toh kuch hai bolna
+- koi ladki hai jab woh hasti hai
+- bholi se surat aakh me masti
+- mujho hui na khabar, chori chori chup chup kar
+- koi mil gaya mera dil gaya
+- ye ladki hai allha
+- ye ladki hai diwani hai diwani
+- aankhe khuli ho ya ho band deedar usi ka hota hai(Mohabbatein )
+- soni soni ankhiyo wale (Mohabbatein )
+- bole chudiya bole kangana
+- tum paas aaye yu muskuraye
+- mehndi laga ke rakhna
+- soni soni aaja  mahi we ( kal ho na ho)
+- tere ghar aaya mai aaya tujhko lene( kuch kuch hota hai)
