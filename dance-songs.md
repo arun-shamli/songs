@@ -16,8 +16,6 @@ ___
 - aajkal tere mere pyar ke 
 - dekho dekho ye sham badi mastani
 - chand see mahbuba ho 
-- koi ladki hai
-- ye ladki hai diwani 
 - ham tum pe marne wale hai koi gair nahi
 - tum dil ki dhadkan me
 - dil ne ye kaha hai dil se
@@ -36,12 +34,8 @@ ___
 ___
 https://www.youtube.com/watch?v=WFmdou7uuCs <br>
 चल प्यार करेगी हाँ जी हाँ जी <br>
-मेहंदी लगा के रखना डोली सजा के रखना <br>
-ये लड़की है अल्ला हाय री अल्ला <br>
-तेरे घर आया मे आया तुझको लेने <br>
 
-बोले चूड़िया बोले कंगना <br>
-सोणी सोणी  आजा माही वे <br>
+
 सपने मे मिलती है <br>
 
-सोणी सोणी  अँखियो वाले ये आशिक लूट जाणे  है <br>
+
